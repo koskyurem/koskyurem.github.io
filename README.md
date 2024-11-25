@@ -1,3 +1,1 @@
-# koskyurem.github.io
-
-Hello!
+Hello! My name is Timos 
